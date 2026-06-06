@@ -1,4 +1,4 @@
-# 📦 Microsoft Office Guide
+# 📦 Microsoft Office Activation Guide
 
 ## 🚀 Activation Steps
 
